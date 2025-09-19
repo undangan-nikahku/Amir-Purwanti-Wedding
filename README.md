@@ -3,7 +3,7 @@
 https://undangan-nikahku.github.io/Amir-Purwanti-Wedding/
 
 
-## 💌 Undangan Pernikhan Amir & Purwanti
+## 💌 Undangan Pernikahan Amir & Purwanti
 Assalamu'alaikum Warahmatullahi Wabarakatuh
 
 Yth. Bapak/Ibu/Saudara/i
@@ -14,7 +14,7 @@ Di Tempat
 
 Dengan segala kerendahan hati, kami mengundang Bapak/Ibu/Saudara/i dan teman-teman untuk menghadiri acara,
 
-Pernikahan Robi & Sri
+Pernikahan Amir & Purwanti
 
 Pada: Resepsi Pernikahan
 - 🗓️ Tanggal : 12 Oktober 2025
